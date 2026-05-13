@@ -1,4 +1,4 @@
 - Howdy
 - I AM Username228
-- I am making stuff for the hit game "Space Autism 14"
+- I am learning how to properly code
 - Have a pleasant day whoever will read this :)
